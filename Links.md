@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 11:24 IR
+- 🎬 [The Best & Worst Curly Hairstyles to Get in 2026.mp4](https://github.com/samyarz/sandbox/raw/main/dl/The%20Best%20%26%20Worst%20Curly%20Hairstyles%20to%20Get%20in%202026.mp4) `44.2MB`
+
+---
+
+
 ### 📅 2026-04-28 11:13 IR
 - 🎬 [The BEST Curly Haircuts for Men 2025.mp4](https://github.com/samyarz/sandbox/raw/main/dl/The%20BEST%20Curly%20Haircuts%20for%20Men%202025.mp4) `36.2MB`
 
